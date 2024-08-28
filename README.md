@@ -1,1 +1,1 @@
-Combined file of the VOlusia County Comprehensive Plan
+Combined file of the Volusia County Comprehensive Plan
